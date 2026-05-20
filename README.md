@@ -2,6 +2,7 @@
 
 This is a satirical project.  
 No, you are not legally required to watch ads.
+
 A year or so ago, one of my friends said something that randomly stuck with me.
 
 She was talking about how creative people behind ads and marketing barely get any appreciation for the amount of work they put in.  
